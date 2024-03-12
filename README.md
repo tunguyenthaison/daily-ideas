@@ -12,6 +12,7 @@ Every day, I acquire new knowledge, sometimes through problem-solving in researc
 - **To Help**: First of all, to help myself. I want to train myself to "think by writing," as it is easily more productive and systematic than merely keeping ideas in my mind and repeatedly exploring an unprocessed idea, one that I have not worked on deeply. I believe we should not repeat things; life is too short to keep revisiting something without gaining new results. 
    > _Insanity is doing the same thing over and over again and expecting different results_. <br>
    > Rita Mae Brown
+   
 Furthermore, it might capture someone's interest.
 
 ## What You'll Find Here
